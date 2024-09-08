@@ -1,4 +1,4 @@
-# techstack-assignment-action
+# techstax-assignment-action
 Hii, My name is Ayush Aditya.
 This is a developer assessment task of TechStaX
 Assignment:-
