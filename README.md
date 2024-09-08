@@ -6,6 +6,3 @@ aVJDaiwrhouealvdmpwir40;DVSnpbw4
 anrbVanwraw
 vskvnauwr
 lrm
-svanrigiDVME
-sovnawg
-vjfaore
